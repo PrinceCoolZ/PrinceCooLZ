@@ -45,6 +45,6 @@
 ## 📫 Let's Connect
 
 - 🔗 [LinkedIn](https://www.linkedin.com/in/hitesh-mukherjee-cse/)
-- 📧 Email: hiteshmukherjee3@gmail.com
+- 📧 [E-mail](hiteshmukherjee3@gmail.com)
 
 Thanks for visiting my profile! ⭐ 
